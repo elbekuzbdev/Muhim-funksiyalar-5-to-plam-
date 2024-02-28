@@ -1,0 +1,1 @@
+# Muhim-funksiyalar-5-to-plam-
